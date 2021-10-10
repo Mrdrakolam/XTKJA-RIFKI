@@ -1,0 +1,2 @@
+# XTKJA-RIFKI
+selamat bergabung
